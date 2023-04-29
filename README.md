@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HigHt3k
-- 👀 I’m interested in Aviation, Data Analytics and Gaming/Esports where I also participate in an amateur team. 
+- 👀 I’m interested in Aviation, Data Analytics and Esports.
 - 💞️ I’m currently not looking for any collaborations.
 - 📫 How to reach me: 
 -- Discord: Wer ist eigentlich Johann?#6313
